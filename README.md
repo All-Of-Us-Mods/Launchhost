@@ -8,3 +8,4 @@ please do not DM me, or any other staffer. We won't be answering questions. Nobo
 
 # APRIL FOOLS
 This mod does not exist and never will. (unfortunately)
+I am sincerely sorry for everyone who believed it 😭
